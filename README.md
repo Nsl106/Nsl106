@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nsl106
+- 👀 I’m interested in Minecraft 
+- 🌱 I’m currently learning Very Important Things.
+- 📫 How to reach me: Magic
